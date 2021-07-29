@@ -1,0 +1,1 @@
+# Aptitude_solved1
